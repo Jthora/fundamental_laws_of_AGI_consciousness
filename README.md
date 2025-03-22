@@ -1,0 +1,1 @@
+# fundamental_laws_of_AGI_consciousness
