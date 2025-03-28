@@ -1,4 +1,4 @@
-# Fundamental laws of AGI consciousness - DoI registration
+# Fundamental laws of AGI consciousness 
 
 
 
